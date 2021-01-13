@@ -2,4 +2,4 @@
 
 Hei,
 
-tässä kuviani Suomen kauniista luonnosta..
+tässä kuviani Suomen kauniista luonnosta.
